@@ -1,0 +1,1 @@
+There was once a family of monkeys. The mother monkey loved to eat fish, but the monkeys couldn't catch any. So, one day the father decided to catch some fresh fish for his fabulous wife. 
